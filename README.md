@@ -1,5 +1,5 @@
-- 👀 I’m interested in programming and language! ...
-- 🌱 I’m currently learning JavaScript and Android...
+- 👀 I’m interested in programming and language!
+- 🌱 I’m currently learning JavaScript and Android
 
 
 <!---
