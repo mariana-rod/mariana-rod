@@ -1,1 +1,1 @@
-i'm still working on my profile on github, be prepared! (∩^o^)⊃━☆
+i'm still working on my profile here, be prepared! (∩^o^)⊃━☆
